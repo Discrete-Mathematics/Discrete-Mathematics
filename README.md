@@ -6,7 +6,7 @@ I'm Discrete-Mathematics, an undergraduate in China University of Mining & Techn
 -⚡ TouHou and Anime(especially Mygo&AveMujica) Fan, Internationalist  
 -💬 Ask me about anything
 
-Contact me at: 
+Contact me at:   
 -QQ:      914279795  
 -WeChat:  A914279795   
 -biibili: https://space.bilibili.com/381382544?spm_id_from=333.337.0.0  
