@@ -3,7 +3,7 @@
 I'm Discrete-Mathematics, an undergraduate in China University of Mining & Technology, Beijing who major in artificial intelligence.  
 
 - ✏️ Artificial Intelligence  
-- ⚡ TouHou and Anime(especially Mygo&AveMujica) Fan, Internationalist  
+- ⚡ TouHou and Anime(especially Mygo&AveMujica) Fan, Hearth of Iron 4 player, Internationalist  
 - 💬 Ask me about anything
 
 ## Contact me at   
