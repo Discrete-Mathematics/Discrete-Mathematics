@@ -11,7 +11,7 @@ I'm Haoyu Zou, an undergraduate in China University of Mining & Technology, Beij
 - WeChat:  A914279795   
 - biibili: https://space.bilibili.com/381382544?spm_id_from=333.337.0.0  
 - zhihu:   https://www.zhihu.com/people/ni-ming-yong-yong-hu-47
-- email:   2310402217@student.cumtb.edu.cn
+- E-mail:   2310402217@student.cumtb.edu.cn
 
 ## Advertisement  
 Welcome to my personal study discussion QQ group 462138385, I'm glad to see any of you join it!
