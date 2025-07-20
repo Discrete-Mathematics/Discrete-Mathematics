@@ -1,6 +1,6 @@
 ## Hi there 👋
 
-I'm Discrete-Mathematics, an undergraduate in China University of Mining & Technology, Beijing who major in artificial intelligence.  
+I'm Haoyu Zou, an undergraduate in China University of Mining & Technology, Beijing who major in artificial intelligence.  
 
 - ✏️ Artificial Intelligence  
 - ⚡ TouHou and Anime(especially Mygo&AveMujica) Fan, Hearth of Iron 4 player, Internationalist  
@@ -10,7 +10,8 @@ I'm Discrete-Mathematics, an undergraduate in China University of Mining & Techn
 - QQ:      914279795  
 - WeChat:  A914279795   
 - biibili: https://space.bilibili.com/381382544?spm_id_from=333.337.0.0  
-- zhihu:   https://www.zhihu.com/people/ni-ming-yong-yong-hu-47  
+- zhihu:   https://www.zhihu.com/people/ni-ming-yong-yong-hu-47
+- email:   2310402217@student.cumtb.edu.cn
 
 ## Advertisement  
 Welcome to my personal study discussion QQ group 462138385, I'm glad to see any of you join it!
