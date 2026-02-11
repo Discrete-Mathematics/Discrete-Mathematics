@@ -3,7 +3,7 @@
 I'm Haoyu Zou, an undergraduate in China University of Mining & Technology, Beijing who major in artificial intelligence.  
 
 - ✏️ Artificial Intelligence  
-- ⚡ TouHou and Anime(especially Mygo&AveMujica) Fan, Hearth of Iron 4 player, Internationalist  
+- ⚡ TouHou and Anime Fan, Hearth of Iron 4 player  
 - 💬 Ask me about anything
 
 ## Contact me at   
